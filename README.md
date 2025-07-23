@@ -1,0 +1,1 @@
+# schmidtzl-assets
